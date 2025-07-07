@@ -25,4 +25,4 @@ In "Qianqian Player Options" - "Skin", select the corresponding skin, or directl
  
 软件来源：网络，本人怀着崇敬的心，缅怀过去的---青春.没有任何形式的商业行为，不接受任何形式的举报或追责。你的一切行为对我无效。
 Software source: Internet. I remember my past youth with a reverent heart ---- no commercial behavior of any kind, and do not accept any
-form of reporting or accountability. All your 
+form of reporting or accountability. All your actions have no effect on me.
